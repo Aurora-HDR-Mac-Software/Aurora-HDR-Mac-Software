@@ -1,0 +1,1 @@
+# Aurora-HDR-Mac-Software
